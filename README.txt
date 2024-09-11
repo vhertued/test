@@ -1,7 +1,3 @@
-Hi! Im vhertued
-im new to coding
-im testing this out! haha
+Hi im vhert
 
-i also have a tendency to love men
-
-!!!
+i was in chronic before lol
